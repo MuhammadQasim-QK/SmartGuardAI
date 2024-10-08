@@ -7,3 +7,8 @@ If you would like to discuss the project further or arrange a call to view the c
 
 ![Untitled design (7)](https://github.com/user-attachments/assets/f653355c-301c-401f-b7f0-5e8fc6b3daaa)
 ![all-devices-white](https://github.com/user-attachments/assets/e1994d8d-983c-4e48-8984-acc0052cfd6e)
+
+
+# Gif
+
+![smartmockups_m1zf2fdz](https://github.com/user-attachments/assets/7fe018bd-3c66-4159-a14e-307752e8b3a4)
